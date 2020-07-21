@@ -1,1 +1,1 @@
-# logy-ai.github.io
+# shinchan
